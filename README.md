@@ -5,6 +5,6 @@
 <(|){======================================================================}(|)>
 
 I Dunno how you happened upon this lil' corner but welcome! I suck at coding for the effin' life of me, So even though I'm hoping and trying to
-learn through experience, Feel free to chip in to pull me from starting a virtual forest-fire, I'll pay you even for the help 👍
+learn through experience, Feel free to chip in to pull me from starting a virtual forest-fire, I'll pay you even for the help 👍 💲💲💲
 
 ~Honk Honk 🤡🎪🍭🎡🎉
